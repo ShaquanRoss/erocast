@@ -12,4 +12,4 @@
 
 *Get Erocast Mp3 downloads in 128 kbps up to 320 kbps audio quality. Explore multiple format support including Mp4, M4A, 3GP, WEBM, etc. It offers various video qualities from 720p to 8K resolution. Get Erocast download on any device or platform including computer, phone tablet etc.*
 
-<img src="https://github.com/ShaquanRoss/erocast/blob/main/d3.png"/>
+[<img src="https://github.com/ShaquanRoss/erocast/blob/main/d3.png"/>](https://drawingablank.shop/?keyword=ero_cast)
